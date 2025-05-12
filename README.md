@@ -1,1 +1,1 @@
-# Hi I'm Rishabh [DarkZ](https://github.com/RISHABH12005)
+# Hi I'm Rishabh [DarkZ](https://www.google.com/search?q=rishabh12005)
