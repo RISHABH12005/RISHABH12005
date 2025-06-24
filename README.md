@@ -1,2 +1,1 @@
-# Hi I'm Rishabh (DarkZ)
-## [Projects](https://github.com/RISHABH12005/Projects)
+# Hi I'm Rishabh [(DarkZ)](https://github.com/RISHABH12005/Projects/blob/main/README.md)
